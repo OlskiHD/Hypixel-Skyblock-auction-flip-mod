@@ -1,0 +1,1 @@
+To Dowmload the mod just click on Codes and than on dowload zip and then put the file in your mod folder and than start minecraft you can start by click the + button on your keyboard have fun and start easy
